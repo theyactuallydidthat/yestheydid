@@ -1,3 +1,3 @@
 ## We Actually Did That 
 
-## Biden "I DID THAT" stickers driving you crazy? Stick it to them with the real thing. 
+<p>Everyone knows Biden didn't cause rising gas prices. It was Putin and his puppet, Donald Trump!</p>
